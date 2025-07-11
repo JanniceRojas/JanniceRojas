@@ -7,7 +7,7 @@ para poder sistematizar todas las actividades de la vida cotidiana y me encantar
 
 ✨ "El viento no guía a quien no tiene brújula; solo navega con propósito quien conoce su destino."  
 
-![Inspiración Animada](https://media.giphy.com/media/3o7aD4sWquyA6vgSde/giphy.gif)
+![Inspiración Animada](https://img1.picmix.com/output/stamp/normal/2/6/6/3/1523662_eff70.gif)
 
 ¿Por qué esta frase?
 🪷Porque en la vida y en la ingeniería, el rumbo claro es lo que transforma el esfuerzo en resultados.
