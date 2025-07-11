@@ -7,7 +7,7 @@ para poder sistematizar todas las actividades de la vida cotidiana y me encantar
 
 ✨ "El viento no guía a quien no tiene brújula; solo navega con propósito quien conoce su destino."  
 
-![Brújula que guía](https://almeriatrending.com/wp-content/uploads/2022/05/la-brujula-que-te-guia-de-vuelta-a-casa-ana-gonzalez.jpg)
+![Brújula que guía](dibujo-de-la-mano-esquema-brújula-vintage-abstracta-libre-retro-image241123797)
 
 
 ¿Por qué esta frase?
