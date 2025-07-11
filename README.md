@@ -7,7 +7,8 @@ para poder sistematizar todas las actividades de la vida cotidiana y me encantar
 
 ✨ "El viento no guía a quien no tiene brújula; solo navega con propósito quien conoce su destino."  
 
-![Brújula que guía](dibujo-de-la-mano-esquema-brújula-vintage-abstracta-libre-retro-image241123797)
+
+![Inspiración Navegante](https://i.imgur.com/p6OWmQe.png)
 
 
 ¿Por qué esta frase?
